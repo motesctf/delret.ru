@@ -1,0 +1,1 @@
+# delret.ru\n
